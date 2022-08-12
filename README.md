@@ -1,2 +1,2 @@
-# Hoppizoom Privacy & Policy Page
+# Hoppizoom App Homepage
 
